@@ -33,17 +33,20 @@ TaskMate stands out as the go-to productivity app, offering a seamless, intuitiv
 
 Contributors
 
-•	Wejdan Nasser
+Nabilah Mohammed /
+444813520
 
-•	Zahra Mohammed
+Rana Ahmed /
+444816698
 
-•	Nabilah Mohammed
+Ahlam Ali /
+444816708
 
-•	Rana Ahmed
+ Wejdan Nasser /
+444808076
 
-•	Ahlam Ali
-
-•	Zhoor Marwaiy
+Zahra Mohammed /
+444816111
 
 to contact us
 
